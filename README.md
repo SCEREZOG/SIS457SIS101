@@ -1,3 +1,3 @@
 # SIS457
-SOLEDAD CEREZO GUZMAN 
-cerezosoleda@gmail.com
+SOLEDAD CEREZO GUZMAN
+scerezoguz@gmail.com    E-campus
